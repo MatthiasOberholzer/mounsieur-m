@@ -1,6 +1,6 @@
-#Mounsieur M 
+#Mounsieur M and O
 
-This is a white t-shirt.
-It's a cool t-shirt.
-It has good quality too.
-Yeah. Did I say that it's pretty cool
+This is a black pullover.
+It's a cool pullover.
+It has a good quality too.
+Yeah. Did I say that it's pretty cool tho.
