@@ -6,4 +6,4 @@ It's a cool pullover and some cool pants.
 It has a good quality too, actually both of them.
 Yeah. Did I say that both are pretty cool.
 Like for real it is cool.
-No joke
+No joke!
